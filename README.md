@@ -13,6 +13,6 @@
 网站D优化了移动端观看体验，确保手机和平板上的视频播放顺畅，随时随地都能享受高清资源。网站E不仅提供大量免费的资源，还包括一些高清付费影片，满足对影片质量有更高要求的用户。
 所有这些平台都能提供高质量的日本AV影片，保证清晰、流畅的观看体验，满足不同用户的需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mm20250705/mm6 ）</span>
 
 
